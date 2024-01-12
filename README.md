@@ -16,7 +16,7 @@ I am continuously expanding my knowledge in Agile methodologies and exploring in
 I am open to collaborating on projects related to sustainable practices, e-commerce, and initiatives aimed at making a positive environmental impact.
 
 ## 📫 How to Reach Me
-You can reach out to me via email at konstantin@example.com. I am always open to discussions and collaboration opportunities.
+You can reach out to me via email at kolexrolas@gmail.com. I am always open to discussions and collaboration opportunities.
 
 ## 😄 Pronouns
 He/Him
